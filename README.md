@@ -1,0 +1,2 @@
+# wisdom
+knowledge is wisdom
